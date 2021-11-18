@@ -64,7 +64,14 @@ Sharks are part of our life support, as they keep ocean healthy and balanced, so
 
 What makes me so sad just like losing the Sharky, is what we are doing to these animals, it must be a privilege to be Shark, but in this world is a sad and not fair thing. Sharks kills about 8 to 10 humans in accident per year, while we are killing sharks ate a stupid rate, at ±100 million per year and about 10% of remaining population, someday sharks will be gone forever. If we think in numbers, and as they are amazing evolutions that survived mass extinctions with ±450M years, yet they are barely surviving to us for 20 years, really, what is that sad reality!?
 
+![Shark killing](https://pbs.twimg.com/media/D0luR3eW0AAQZmz.jpg)
+
+![Shark Finning](https://images.squarespace-cdn.com/content/v1/5bae466429f2cc29475d636e/1548440530520-TGI3OWHB9I4BE1FU383N/shark-finning.jpg)
+
 Away from everyone eyes there are crude practices of removing the fin while still alive (Finning) and discard the body into water, most die drown in agony, and while fin is removed, they can’t scream as they have no vocals, so it’s even worse as they suffer in silence away from all people eyes. Keep in mind fish are not painless, they have long and very sensitive organs with hundreds of times more sensitive than our senses, they react to pain!
+
+![Shark bycath](https://www.azoreswhalewatch.com/wp-content/uploads/bycatch_vanessa.jpg)
+![Shark dead on net](https://i.pinimg.com/originals/cd/02/66/cd0266c1af952507f77247b0330355b4.jpg)
 
 But this is just the tip of iceberg, the finishing alone kills more sharks, and even if we never touch a shark, we are killing sharks by eating fish and pay taxes that goes into fisheries. The aggregation devices are wiping a ton of other animals just to catch one specie, that is not an accident as they call it “Bycath”, they know what species are near what so they already know the consequences beforehand. Not to tell the nets are harvesting ocean floor making a huge impact on balance and O2 production, plus killing other animals that get stuck on left behind nets. This is the biggest pollution nowadays and almost no one talks about it.
 
