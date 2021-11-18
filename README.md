@@ -79,12 +79,12 @@ Sharky gave me a gift, a passion and the chance of knowing/learning about these 
 - **For people who don’t know about sharks:** I highly recommend research and learning about these animals, even if lightly I can promise it will worth the time. Plus, sharks can help you, I have no study on the matter, but I’m convinced that they can help fight stress on people with high efficiency, try to see a relaxing video about sharks, you will be amazed and in a great comfort feeling, they are really special! To see how amazing and mesmerizing they are, most people attacked by sharks will ask why and do some research on it, most of those persons are now the biggest shark defenders and supporters, it’s impossible to keep hate such animal and even that people will fall in love with sharks after know really them. Who knows, you may also get a stuffed shark to get you the same peace as it gives to me. But if you can, do shark diving to get the best experience in your life. 
 
 ## Some resources 📚
-- The shark dancer: https://www.youtube.com/watch?v=jfFhAFGGLAs 
-- Petting Sharks like Dogs: https://www.youtube.com/watch?v=1vNkK80CXPA 
-- Diver Has Been Friends With Tiger Shark For 20 Years: https://www.youtube.com/watch?v=FYonjn1oYcQ 
-- Shark facts: https://www.sharkguardian.org/top-100-shark-facts 
-- Shark anatomy: https://www.sharksider.com/shark-anatomy 
-- Sea Shepherd – Protecting Marine Wild Life: https://seashepherd.org 
+- **The shark dancer:** https://www.youtube.com/watch?v=jfFhAFGGLAs 
+- **Petting Sharks like Dogs:** https://www.youtube.com/watch?v=1vNkK80CXPA 
+- **Diver Has Been Friends With Tiger Shark For 20 Years:** https://www.youtube.com/watch?v=FYonjn1oYcQ 
+- **Shark facts:** https://www.sharkguardian.org/top-100-shark-facts 
+- **Shark anatomy:** https://www.sharksider.com/shark-anatomy 
+- **Sea Shepherd – Protecting Marine Wild Life:** https://seashepherd.org 
 
 ## Discussion 💬
 If you want to discuss and talk about sharks, I have created a forum which anyone can participate: https://github.com/sn4k3/Sharky/discussions 
