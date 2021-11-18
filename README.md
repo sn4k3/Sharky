@@ -69,6 +69,7 @@ What makes me so sad just like losing the Sharky, is what we are doing to these 
 
 ![Shark Finning](https://images.squarespace-cdn.com/content/v1/5bae466429f2cc29475d636e/1548440530520-TGI3OWHB9I4BE1FU383N/shark-finning.jpg)
 ![Shark Finning 2](https://www.diveagainstdebris.org/sites/www.projectaware.org/files/styles/post/public/copyright%20Nancy%20Boucha%2C%20web.jpg)
+![Shark Finning 3](https://media.npr.org/assets/img/2015/03/03/shark-fin-2_custom-4c88c598b2e42487fae4670d609400bc05af1f8d.jpg)
 
 Away from everyone eyes there are crude practices of removing the fin while still alive (Finning) and discard the body into water, most die drown in agony, and while fin is removed, they can’t scream as they have no vocals, so it’s even worse as they suffer in silence away from all people eyes. Keep in mind fish are not painless, they have long and very sensitive organs with hundreds of times more sensitive than our senses, they react to pain!
 
@@ -77,7 +78,30 @@ Away from everyone eyes there are crude practices of removing the fin while stil
 
 But this is just the tip of iceberg, the finishing alone kills more sharks, and even if we never touch a shark, we are killing sharks by eating fish and pay taxes that goes into fisheries. The aggregation devices are wiping a ton of other animals just to catch one specie, that is not an accident as they call it “Bycath”, they know what species are near what so they already know the consequences beforehand. Not to tell the nets are harvesting ocean floor making a huge impact on balance and O2 production, plus killing other animals that get stuck on left behind nets. This is the biggest pollution nowadays and almost no one talks about it.
 
-We are the real plague in this world, we will be our own cause of death and extinction. Most of our environmental problems can be solved by leave the ocean alone and not interfere with it. It’s not hard to recover but political and money interests will come first and ruin what we have best here.
+### There are many other problems as well, like:
+
+#### Shark in aquarium:
+It might sound very cool to have a shark on your room, for sure your friends will praise you, but how about invert the pappers? Would you like it? Just think about...
+No friends, always the same space, chemicals and dirty water, lack of care, lonely and artificial life, what is cool about this? They have fellings too!
+![Shark in aquarium](http://blog.egorealestate.com/wp-content/uploads/2015/05/Delray-Wreck-Exhibit-Aquarium-nurse-shark.jpg)
+
+#### Shark fishing for sport:
+I will never understand where is the honor on this, really, if you want to be the hero in your own village, take a photo in water with a living shark... Plus sharks are always good looking and photogenic, no way to be ugly with them.  
+Sport finishing/hunting, killing animals for fun and sport should be a crime everywhere and abolished!
+![Shark sport finishing](https://images.squarespace-cdn.com/content/v1/5bae466429f2cc29475d636e/1557422944819-FPRMSZ12Z71GALUR8GIY/shark-fishing-tournament.jpg)
+
+#### Fishing:
+Finishing and catch sharks by accident is another problem, even when released they will get a hook stuck, they can fell pain! And it's not cool to have one stuck on thier mouth for how long!?
+![Shark finishing](https://www.scubadiving.com/sites/scubadiving.com/files/styles/500_1x_/public/images/2017/10/006-shark-with-hook-in-mouth.jpg)
+
+#### Shark based products:
+We kill sharks for health products (sorry, for stupidity), the most stupid part is that the products do not have benefits to us...
+![Shark cartilage](https://www.sashark.com/wp-content/uploads/2020/09/sashark-about-product.png)
+![Shark Squalene](https://cdn2.bigcommerce.com/server3700/f8566/products/987/images/1264/Good_Health_Squalene_1000mg_300__30426.1452244608.1280.1280.jpg)
+![Shark lotion](https://ae01.alicdn.com/kf/HTB113bJr9cqBKNjSZFgq6x_kXXaO/Disaar-protetor-solar-de-tubar-o-clareamento-prote-o-solar-contra-queimaduras-de-sol-creme-filtro.jpg)
+![Shark cosmetic](https://cdn.livekindly.co/wp-content/uploads/2018/07/lipstick-shark-fin-Cropped.jpg)
+
+We are the real plague in this world, we will be our own cause of death and extinction. Most of our environmental problems can be solved by leave the ocean alone and not interfere with it. It’s not hard to recover but political and money interests will come first and ruin what we have best here. 
 
 ## Who I am today?
 Today almost everything in my life is based on Sharks. I can tell you, even the shower curtains have cute shark drawings, but those have been since ever, much before I meet the sharks, so it was the faith already.
