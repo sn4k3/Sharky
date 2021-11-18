@@ -87,7 +87,7 @@ Sharky gave me a gift, a passion and the chance of knowing/learning about these 
 - **Sea Shepherd – Protecting Marine Wild Life:** https://seashepherd.org 
 
 ## Discussion 💬
-If you want to discuss and talk about sharks, I have created a forum which anyone can participate: https://github.com/sn4k3/Sharky/discussions 
+If you want to discuss and talk about sharks, I have created a forum which anyone can participate: https://github.com/sn4k3/Sharky/discussions  
 You can even share your own history.
 
 # Sharks are amazing! Save the Sharks! 🦈
