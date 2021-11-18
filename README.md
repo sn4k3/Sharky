@@ -67,6 +67,7 @@ What makes me so sad just like losing the Sharky, is what we are doing to these 
 ![Shark killing](https://pbs.twimg.com/media/D0luR3eW0AAQZmz.jpg)
 
 ![Shark Finning](https://images.squarespace-cdn.com/content/v1/5bae466429f2cc29475d636e/1548440530520-TGI3OWHB9I4BE1FU383N/shark-finning.jpg)
+![Shark Finning 2](https://www.diveagainstdebris.org/sites/www.projectaware.org/files/styles/post/public/copyright%20Nancy%20Boucha%2C%20web.jpg)
 
 Away from everyone eyes there are crude practices of removing the fin while still alive (Finning) and discard the body into water, most die drown in agony, and while fin is removed, they can’t scream as they have no vocals, so it’s even worse as they suffer in silence away from all people eyes. Keep in mind fish are not painless, they have long and very sensitive organs with hundreds of times more sensitive than our senses, they react to pain!
 
@@ -93,9 +94,11 @@ Sharky gave me a gift, a passion and the chance of knowing/learning about these 
 - **The shark dancer:** https://www.youtube.com/watch?v=jfFhAFGGLAs 
 - **Petting Sharks like Dogs:** https://www.youtube.com/watch?v=1vNkK80CXPA 
 - **Diver Has Been Friends With Tiger Shark For 20 Years:** https://www.youtube.com/watch?v=FYonjn1oYcQ 
+- **Shark finning PT1 Partial Utilisation:** https://www.youtube.com/watch?v=y0d3x35dAAQ
 - **Shark facts:** https://www.sharkguardian.org/top-100-shark-facts 
 - **Shark anatomy:** https://www.sharksider.com/shark-anatomy 
 - **Sea Shepherd – Protecting Marine Wild Life:** https://seashepherd.org 
+- **Stop Finning EU:** https://www.stop-finning-eu.org
 
 ## Discussion 💬
 If you want to discuss and talk about sharks, I have created a forum which anyone can participate: https://github.com/sn4k3/Sharky/discussions  
