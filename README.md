@@ -73,12 +73,12 @@ Sharky gave me a gift, a passion and the chance of knowing/learning about these 
 
 ![Session](https://raw.githubusercontent.com/sn4k3/Sharky/main/photos/Session.jpg)
 
-## The appeal 
+## The appeal 🙏
 - **For people who know about sharks:** Share your information about them with the people who you like to talk, even a small fact or a cool thing about sharks can make the difference, and really, after know sharks it’s really impossible to not like them, they have something special that catch our attention, I think we are hypnotized by the shape and fin…
 - **For people who have a depth knowledge in sharks:** If you not already, and have the time, do like me, we need more people sharing this with the world. We need help to save the sharks.
 - **For people who don’t know about sharks:** I highly recommend research and learning about these animals, even if lightly I can promise it will worth the time. Plus, sharks can help you, I have no study on the matter, but I’m convinced that they can help fight stress on people with high efficiency, try to see a relaxing video about sharks, you will be amazed and in a great comfort feeling, they are really special! To see how amazing and mesmerizing they are, most people attacked by sharks will ask why and do some research on it, most of those persons are now the biggest shark defenders and supporters, it’s impossible to keep hate such animal and even that people will fall in love with sharks after know really them. Who knows, you may also get a stuffed shark to get you the same peace as it gives to me. But if you can, do shark diving to get the best experience in your life. 
 
-## Some resources
+## Some resources 📚
 - The shark dancer: https://www.youtube.com/watch?v=jfFhAFGGLAs 
 - Petting Sharks like Dogs: https://www.youtube.com/watch?v=1vNkK80CXPA 
 - Diver Has Been Friends With Tiger Shark For 20 Years: https://www.youtube.com/watch?v=FYonjn1oYcQ 
@@ -86,8 +86,8 @@ Sharky gave me a gift, a passion and the chance of knowing/learning about these 
 - Shark anatomy: https://www.sharksider.com/shark-anatomy 
 - Sea Shepherd – Protecting Marine Wild Life: https://seashepherd.org 
 
-## Discussion
+## Discussion 💬
 If you want to discuss and talk about sharks, I have created a forum which anyone can participate: https://github.com/sn4k3/Sharky/discussions 
 You can even share your own history.
 
-# Sharks are amazing! Save the Sharks!
+# Sharks are amazing! Save the Sharks! 🦈
