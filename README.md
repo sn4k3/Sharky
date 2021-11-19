@@ -94,7 +94,7 @@ Sport finishing/hunting, killing animals for fun and sport should be a crime eve
 ![Shark sport finishing](https://images.squarespace-cdn.com/content/v1/5bae466429f2cc29475d636e/1557422944819-FPRMSZ12Z71GALUR8GIY/shark-fishing-tournament.jpg)
 
 #### Fishing:
-Finishing and catch sharks by accident is another problem, even when released they will get a hook stuck, they can fell pain! And it's not cool to have one stuck on thier mouth for how long!?
+Finishing and catch sharks by accident is another problem, even when released they will get a hook stuck, they can fell pain! And it's not cool to have one stuck on thier mouth. And for how long!?
 
 ![Shark finishing](https://www.scubadiving.com/sites/scubadiving.com/files/styles/500_1x_/public/images/2017/10/006-shark-with-hook-in-mouth.jpg)
 
