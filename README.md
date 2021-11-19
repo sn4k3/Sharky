@@ -111,7 +111,8 @@ We kill sharks for health products (sorry, for stupidity), the most stupid part 
 ![Shark lotion](https://ae01.alicdn.com/kf/HTB113bJr9cqBKNjSZFgq6x_kXXaO/Disaar-protetor-solar-de-tubar-o-clareamento-prote-o-solar-contra-queimaduras-de-sol-creme-filtro.jpg)
 ![Shark cosmetic](https://cdn.livekindly.co/wp-content/uploads/2018/07/lipstick-shark-fin-Cropped.jpg)
 
-We are the real plague in this world, we will be our own cause of death and extinction. Most of our environmental problems can be solved by leave the ocean alone and not interfere with it. It’s not hard to recover but political and money interests will come first and ruin what we have best here. 
+We are the real plague in this world, we will be our own cause of death and extinction. Most of our environmental problems can be solved by leave the ocean alone and not interfere with it. It’s not hard to recover but political and money interests will come first and ruin what we have best here.  
+Ocean is not our property, ocean belong to this marine animals, if we step inside is our problem not otherwise!
 
 ## Who I am today?
 Today almost everything in my life is based on Sharks. I can tell you, even the shower curtains have cute shark drawings, but those have been since ever, much before I meet the sharks, so it was the faith already.
