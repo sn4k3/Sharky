@@ -81,6 +81,11 @@ But this is just the tip of iceberg, the finishing alone kills more sharks, and 
 
 ### There are many other problems as well, like:
 
+#### Movies and TV shows
+Fiction is fiction (period). The human stupidity run on the next day after "a" movie release to kill sharks because they are bad man eaters.  
+There is no problem on fiction, but people must realise, it's fiction!  
+And this kind of stuff creates misinformation a real problems.
+
 #### Shark in aquarium:
 It might sound very cool to have a shark on your room, for sure your friends will praise you, but how about invert the pappers? Would you like it? Just think about...
 No friends, always the same space, chemicals and dirty water, lack of care, lonely and artificial life, what is cool about this? They have fellings too! No to tell most are abandoned/miscare once they grow.
