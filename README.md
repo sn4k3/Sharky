@@ -64,7 +64,7 @@ Sharks are here for much longer than us, dinosaurs and trees, in fact with about
 
 Sharks are part of our life support, as they keep ocean healthy and balanced, so they have a very important role here, life can continue without us, but not without sharks, this show us how sharks are really important. Man thinks it’s superior over all in some way, I don’t believe in that, we all deserve same respect and, in the end, we are all equal being different.
 
-What makes me so sad just like losing the Sharky, is what we are doing to these animals, it must be a privilege to be Shark, but in this world is a sad and not fair thing. Sharks kills about 8 to 10 humans in accident per year, while we are killing sharks ate a stupid rate, at ±100 million per year and about 10% of remaining population, someday sharks will be gone forever. If we think in numbers, and as they are amazing evolutions that survived mass extinctions with ±450M years, yet they are barely surviving to us for 20 years, really, what is that sad reality!?
+What makes me so sad just like losing the Sharky, is what we are doing to these animals, it must be a privilege to be Shark, but in this world is a sad and not fair thing. Sharks kills about 8 to 10 humans in accident per year, while we are killing sharks at a stupid rate, at ±100 million per year and about 10% of remaining population, someday sharks will be gone forever. If we think in numbers, and as they are amazing evolutions that survived mass extinctions with ±450M years, yet they are barely surviving to us for 20 years, really, what is that sad reality!?
 
 ![Shark killing](https://pbs.twimg.com/media/D0luR3eW0AAQZmz.jpg)
 
@@ -142,7 +142,6 @@ This is the only way to end with finishing, if no interest in fish, no one will 
 Protect species, areas, routes, population, protect the ocean are the another ways, but who cares? Where is money there are exploration.  
 Actually less than 1% of ocean is protected, what a shame! Our number 1 life support is the most neglected thing.  
 93% of the CO2 is stored in the ocean, and 85% of our breathing oxygen is produced in the ocean, so you see the importance here?
-
 
 ## Some resources 📚
 - **The shark dancer:** https://www.youtube.com/watch?v=jfFhAFGGLAs 
