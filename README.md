@@ -88,7 +88,7 @@ No friends, always the same space, chemicals and dirty water, lack of care, lone
 ![Shark in aquarium](http://blog.egorealestate.com/wp-content/uploads/2015/05/Delray-Wreck-Exhibit-Aquarium-nurse-shark.jpg)
 
 #### Shark fishing for sport:
-I will never understand where is the honor on this, really, if you want to be the hero in your own village, take a photo in water with a living shark... Plus sharks are always good looking and photogenic, no way to be ugly with them.  
+I will never understand where is the honor on this, really, if you want to be the hero in your own village, take a photo in water with a living shark! A dead animal is not a funny thing! Plus sharks are always good looking and photogenic, no way to be ugly with them.  
 Sport finishing/hunting, killing animals for fun and sport should be a crime everywhere and abolished!
 
 ![Shark sport finishing](https://images.squarespace-cdn.com/content/v1/5bae466429f2cc29475d636e/1557422944819-FPRMSZ12Z71GALUR8GIY/shark-fishing-tournament.jpg)
