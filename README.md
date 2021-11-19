@@ -83,7 +83,7 @@ But this is just the tip of iceberg, the finishing alone kills more sharks, and 
 
 #### Shark in aquarium:
 It might sound very cool to have a shark on your room, for sure your friends will praise you, but how about invert the pappers? Would you like it? Just think about...
-No friends, always the same space, chemicals and dirty water, lack of care, lonely and artificial life, what is cool about this? They have fellings too!
+No friends, always the same space, chemicals and dirty water, lack of care, lonely and artificial life, what is cool about this? They have fellings too! No to tell most are abandoned/miscare once they grow.
 ![Shark in aquarium](http://blog.egorealestate.com/wp-content/uploads/2015/05/Delray-Wreck-Exhibit-Aquarium-nurse-shark.jpg)
 
 #### Shark fishing for sport:
