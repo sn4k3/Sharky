@@ -84,19 +84,23 @@ But this is just the tip of iceberg, the finishing alone kills more sharks, and 
 #### Shark in aquarium:
 It might sound very cool to have a shark on your room, for sure your friends will praise you, but how about invert the pappers? Would you like it? Just think about...
 No friends, always the same space, chemicals and dirty water, lack of care, lonely and artificial life, what is cool about this? They have fellings too! No to tell most are abandoned/miscare once they grow.
+
 ![Shark in aquarium](http://blog.egorealestate.com/wp-content/uploads/2015/05/Delray-Wreck-Exhibit-Aquarium-nurse-shark.jpg)
 
 #### Shark fishing for sport:
 I will never understand where is the honor on this, really, if you want to be the hero in your own village, take a photo in water with a living shark... Plus sharks are always good looking and photogenic, no way to be ugly with them.  
 Sport finishing/hunting, killing animals for fun and sport should be a crime everywhere and abolished!
+
 ![Shark sport finishing](https://images.squarespace-cdn.com/content/v1/5bae466429f2cc29475d636e/1557422944819-FPRMSZ12Z71GALUR8GIY/shark-fishing-tournament.jpg)
 
 #### Fishing:
 Finishing and catch sharks by accident is another problem, even when released they will get a hook stuck, they can fell pain! And it's not cool to have one stuck on thier mouth for how long!?
+
 ![Shark finishing](https://www.scubadiving.com/sites/scubadiving.com/files/styles/500_1x_/public/images/2017/10/006-shark-with-hook-in-mouth.jpg)
 
 #### Shark based products:
 We kill sharks for health products (sorry, for stupidity), the most stupid part is that the products do not have benefits to us...
+
 ![Shark cartilage](https://www.sashark.com/wp-content/uploads/2020/09/sashark-about-product.png)
 ![Shark Squalene](https://cdn2.bigcommerce.com/server3700/f8566/products/987/images/1264/Good_Health_Squalene_1000mg_300__30426.1452244608.1280.1280.jpg)
 ![Shark lotion](https://ae01.alicdn.com/kf/HTB113bJr9cqBKNjSZFgq6x_kXXaO/Disaar-protetor-solar-de-tubar-o-clareamento-prote-o-solar-contra-queimaduras-de-sol-creme-filtro.jpg)
