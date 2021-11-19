@@ -158,3 +158,5 @@ If you want to discuss and talk about sharks, I have created a forum which anyon
 You can even share your own history.
 
 # Sharks are amazing! Save the Sharks! 🦈
+
+![Silky](https://raw.githubusercontent.com/sn4k3/Sharky/main/photos/Silky.jpg)
