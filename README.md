@@ -140,7 +140,7 @@ We need to leave ocean alone for effectively do that, the most efficient way is 
 This is the only way to end with finishing, if no interest in fish, no one will mass fishing, because everything is arround the evil money. And then ocean will explode once again full of life!
 
 Protect species, areas, routes, population, protect the ocean are the another ways, but who cares? Where is money there are exploration.  
-Less than 1% of ocean is actually protected, what a shame! Our number 1 life support is the most neglected thing.
+Actually less than 1% of ocean is protected, what a shame! Our number 1 life support is the most neglected thing.
 
 
 ## Some resources 📚
