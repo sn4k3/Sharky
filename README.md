@@ -82,7 +82,7 @@ But this is just the tip of iceberg, the finishing alone kills more sharks, and 
 ### There are many other problems as well, like:
 
 #### Movies and TV shows
-Fiction is fiction (period). The human stupidity run on the next day after "a" movie release to kill sharks because they are bad man eaters 🤦‍  
+Fiction is fiction (period). The human stupidity run like possessed on the next day after "a" movie release to kill sharks because they are bad man eaters 🤦‍  
 There's no problem on fiction, but people must realise, it's fiction!  
 And this kind of stuff creates misinformation a real problems.
 
